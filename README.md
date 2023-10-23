@@ -1,4 +1,4 @@
-# Jiten-Nuradnar-Readme
+# Jiten-Muradnar-Readme
 
 <h1 align="left">Hey 👋 What's up?</h1>
 
